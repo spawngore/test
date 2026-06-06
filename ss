@@ -1,9 +1,2 @@
-K7mP2xQ9
-v4N8rT1a
-Zq6Jw3Lp
-8cR2yMk7
-H5tX9nBd
-p7Qe4Vz2
-L3kN8sWy
-2FmR6qXc
-T9vJ4pKa
+7days.
+30day
