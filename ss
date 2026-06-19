@@ -1,2 +1,1 @@
-7days.
-30day
+Loyos.
